@@ -1,2 +1,2 @@
-Resource that I am followind is :
+Resource that I am following is :
 https://projects.100xdevs.com/
